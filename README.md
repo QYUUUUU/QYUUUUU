@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @QYUUUUU
-- 👀 I’m interested in Code, Theatre, Video games, Piano
+- 👀 I’m interested in Code, Badminton, Theatre, Video games and Piano
 - 📫 How to reach me : Discord QYUUUU#1232 , Email achoplin@gmail.com
 
 <!---
