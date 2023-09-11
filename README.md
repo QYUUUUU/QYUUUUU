@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @QYUUUUU
 - 👀 I’m interested in Code, Badminton, Theatre, Video games and Piano
-- 📫 How to reach me : Discord QYUUUU#1232 , Email achoplin@gmail.com
+- 📫 How to reach me : achoplin@gmail.com
 
 <!---
 QYUUUUU/QYUUUUU is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
